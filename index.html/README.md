@@ -1,0 +1,1 @@
+İZZET FURKAN CARI
